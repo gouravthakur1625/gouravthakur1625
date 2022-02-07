@@ -12,7 +12,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1hTmwVVMu3sPBm7Ajw7to4kglFZh7PjXm/view?usp=drivesdk](https://drive.google.com/file/d/1hTmwVVMu3sPBm7Ajw7to4kglFZh7PjXm/view?usp=drivesdk)
 
-- ⚡ Fun fact **I love to draw sketch.**
+- ⚡ Fun fact **I love to draw sketchs.**
 
 <h3 align="left">Connect with me:</h3>
 
