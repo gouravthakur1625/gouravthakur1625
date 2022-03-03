@@ -1,4 +1,4 @@
-<a href="#"><img width="100%" height="auto" src=/></a>
+
 
 <h1 align="center">Hi 👋, I'm Gourav Thakur</h1>
 
