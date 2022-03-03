@@ -1,4 +1,4 @@
-<a href="#"><img width="100%" height="auto" src="https://i.imgur.com/iXuL1HG.png" height="175px"/></a>
+<a href="#"><img width="100%" height="auto" src="![WhatsApp Image 2021-12-31 at 8 21 56 PM](https://user-images.githubusercontent.com/84009411/156491091-483a8005-6495-4d46-a798-0be4cfde9af3.jpeg)"/></a>
 
 <h1 align="center">Hi 👋, I'm Gourav Thakur</h1>
 
