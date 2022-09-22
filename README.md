@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **gouravthakur1625@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hTmwVVMu3sPBm7Ajw7to4kglFZh7PjXm/view?usp=drivesdk](https://drive.google.com/file/d/1hTmwVVMu3sPBm7Ajw7to4kglFZh7PjXm/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hKdZOe8ZhGDiyLFtuUx9BPdo2Gd7uunu/view?usp=sharing)
 
 - ⚡ Fun fact **I love to draw sketchs.**
 
